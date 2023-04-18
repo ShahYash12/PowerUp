@@ -29,6 +29,6 @@
 1. Siddarth Nachane - [contact](https://replit.com/@Sidd065)
 2. Aditya Surve - [contact](https://github.com/SurveAditya)
 3. Archit Rathod - [contact](https://github.com/Archit1706)
-4. Yash Shah - [contact](
+4. Yash Shah - [contact](https://github.com/ShahYash12)
 
 
